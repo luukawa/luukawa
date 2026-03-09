@@ -105,3 +105,6 @@ ______
 Can't believe you actually made it through that overwhelming amount of words.. GOLD STAR!!! YAAYYYYY
 
 Can't wait to meet ya!
+
+
+<img width="200" height="200" alt="Screenshot 2026-03-09 015039" src="https://github.com/user-attachments/assets/799f9a35-7c89-4cec-80ff-a82cdc536797" />
