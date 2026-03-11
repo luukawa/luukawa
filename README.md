@@ -86,6 +86,7 @@ SHIPS = yes sure!
 
 Got more questions? Don't be afraid to ask! I'm usually afk because I'm extremely busy all the time, but don't worry! Stop by and try to catch me at the right time! You can whisper, publicly ask me or even hunt me down
 
+P.S its kind of hard to catch me being active. most of the time im studying and afk in game, but trust me! you can always whisper me cool stories so I can read them, its nice to hear about other people after hours of stress. Maybe if you're lucky, you'll catch me being active!
 ___________
 
 # DISCORD INFO
@@ -107,4 +108,4 @@ Can't believe you actually made it through that overwhelming amount of words.. G
 Can't wait to meet ya!
 
 
-<img width="200" height="200" alt="Screenshot 2026-03-09 015039" src="https://github.com/user-attachments/assets/799f9a35-7c89-4cec-80ff-a82cdc536797" />
+<img width="200" height="200" alt="Screenshot 2026-03-09 015039" src="https://github.com/user-attachments/assets/799f9a35-7c89-4cec-80ff-a82cdc536797" /> 
